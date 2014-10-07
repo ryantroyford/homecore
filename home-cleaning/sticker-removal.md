@@ -14,7 +14,6 @@ easy sticker removal recipe
  * one part baking soda
  * one part cooking oil 
 
-
  - mix the ingredients together
  - drop a dab of it on your sticker residue
  - rub it around on the problem area, covering it
