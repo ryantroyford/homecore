@@ -17,7 +17,7 @@ _- Pynchon_
 
  - [home cleaning](/home-cleaning)
 
- 	windex? amonia-based floor cleaners? that shit's for squares. here are cleaning recipes for using all around your house - from basements to bathrooms - that *don't* use toxic chemicals.
+ 	windex? amonia-based floor cleaners? that shit's for squares. here are cleaning recipes for using all around your house - from basements to bathrooms - that clean just fine without the use toxic chemicals.
 
 
  - [personal hygiene](/personal-hygiene) 
