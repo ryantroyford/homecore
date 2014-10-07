@@ -9,7 +9,6 @@ the idea for this was in large part thanks to [a wonderful book by Raleigh Brigg
 i encourage everyone to fork the project and add their own recipes. they must be able to made at home with relative ease, using people/pet/earth-friendly ingredients. together we can stick it to the man & have fun doing it.
 
 _"there is nothing more punk than making your own shampoo"_
-
 _- Lincoln_
 
 ### categories
