@@ -22,7 +22,7 @@ _- Pynchon_
 
  - [personal hygiene](/personal-hygiene) 
 
- 	if you just wanna get clean & smell decent, you don't need to spend a ton of money on bogus crap. here you'll find recipes for healthy skin, pretty hair, nice smelling pits, and show time with a stronger sense of self accomplishment.
+ 	if you just wanna get clean & smell decent, you don't need to spend a ton of money on bogus crap. here you'll find recipes for healthy skin, pretty hair, nice smelling pits, and shower time with a stronger sense of self accomplishment.
 
 
  - [health & wellness](/health-wellness)
