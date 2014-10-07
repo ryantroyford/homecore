@@ -4,9 +4,9 @@
 
 this recipe is a slightly modified version of one i got from my good buddy [Tyler Deal](http://idiotpull.com/).
 
-if you're looking for a simple, no-bullshit concoction to scrub your body with when you're gettin' clean, look no further. this recipe in particular lends itself well to "freestyling, so don't worry about being precise. try some shit out and see what works best for you. 
+if you're looking for a simple, no-bullshit concoction to scrub your body with when you're gettin' clean, look no further. this recipe in particular lends itself well to "freestyling," so don't worry about being precise. try some shit out and see what works best for you. 
 
-i mix this up in a mason jar (with a [pour spout lid](https://www.etsy.com/listing/154132492/hand-made-stainless-steel-mason-jar-drip?ref=related-0) because i'm hip as shit, but any old bottle will do. old shower gel or shampoo bottles work great for this, and it's a nice opportunity to recycle.
+i mix this up in a mason jar (with a [pour spout lid](https://www.etsy.com/listing/154132492/hand-made-stainless-steel-mason-jar-drip?ref=related-0)) because i'm hip as shit, but any old bottle will do. old shower gel or shampoo bottles work great for this, and it's a nice opportunity to recycle.
 
 (this recipe uses unscented castile soap, a mild, gentle soap safe for the babes. it's a great place to start when looking to quickly whip up some body-cleaning potions.)
 
