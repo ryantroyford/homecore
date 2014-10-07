@@ -16,7 +16,7 @@ simple shower scrub
 * about 1 cup of unscented castille soap
 * 5-6 tbsp olive oil
 * 6-8 drops essential oil of your choice 
-	(try mixing & matching - i use lavender a lot, or tea trea + sandalwood)
+	(try mixing & matching - i use lavender a lot, or tea tree + sandalwood)
 * 1/4 cup water
 
  - mix the ingredients together in your container
