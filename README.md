@@ -15,4 +15,4 @@ _- Pynchon_
 
 ---
 
- - [personal hygiene]() 
+ - [personal hygiene](/personal-hygiene) 
