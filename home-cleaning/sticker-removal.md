@@ -2,17 +2,15 @@
 
 ---
 
-so you tried to peel the sticker off that cool looking wine bottle, and shit hit the fan. have no fear my friend, we're here to help.
+so you tried to peel the sticker off that cool looking wine bottle, and shit hit the fan. have no fear my friend, we're here to help. this trick works suprisingly well on even the most stubborn sticker residue.
 
-before i get started, let me just say this this shit worked phenomenally well. i was seriously surprised, both with the simplicity and the result. the sticker i tested it on was one seriously stubborn motherfucker, so if it worked like a charm on that, i have confidence it can help you out, too. 
-
-(it's also worth noting that i had removed most of the paper top layer of the sticker by soaking it in hot water and scraping it with a butter knife. that came off fine, but the tacky residue underneath would not budge)
+this works best when the paper top layer of the sticker is removed. soaking it in water and scraping it with the dull edge of a butter knife is a good place to start.
 
 ```
 easy sticker removal recipe
 
 * one part baking soda
-* one part cooking oil 
+* one part cooking oil (olive oil works fine)
 
  - mix the ingredients together
  - drop a dab of it on your sticker residue
@@ -21,4 +19,4 @@ easy sticker removal recipe
  - scrub off with a scouring pad
 ```
 
-...and that's it. seriously. i usually start with `1 tbsp` each, and then add more of each, in equal amounts, if need be. after your done, give it a nice rinse with soap & water to get rid of the oil. i used olive oil, but i don't think that's imperative.
+...and that's it. `1 tbsp` of each is a good place to begin, and from there you can add more of each, in equal amounts, if need be. after you're done, give it a nice rinse with soap & water to get rid of the oil. 
