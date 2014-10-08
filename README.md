@@ -17,19 +17,17 @@ _- Pynchon_
 
  - [home cleaning](/home-cleaning)
 
- 	windex? amonia-based floor cleaners? that shit's for squares. here are cleaning recipes for using all around your house - from basements to bathrooms - that clean just fine without the use toxic chemicals.
-
+ 	recipes for using all around the house, that clean just fine without the use toxic chemicals.
 
  - [personal hygiene](/personal-hygiene) 
 
- 	if you just wanna get clean & smell decent, you don't need to spend a ton of money on bogus crap. here you'll find recipes for healthy skin, pretty hair, nice smelling pits, and shower time with a stronger sense of self accomplishment.
-
+ 	get clean & look sharp without spending a ton of money on unecessary crap.
 
  - [health & wellness](/health-wellness)
 
- 	these are in no way intended to substitute or subvert real, science-tested medicine. i am not some anti-vaxxer tinfoil hat-wearing wingnut. i do, however, understand the desire to not want to ingest pills for every minor malaise. minor cuts & scrapes, oncoming cold, trying to get to sleep, and all other crap like that - this is the directory for you. 
+ 	remedies for minor ailments & small boo-boos. these are *in no way* intended to substitute or subvert real, science-tested medicine, but you might try some of these before taking advil.
 
 
  - [diy repairs](diy-repairs)
 
- 	not so much for the person as the domicile. fixing creaky floorboards, filling stripped screw holes, etc, etc. 
+ 	repairing your space on the cheap. 
