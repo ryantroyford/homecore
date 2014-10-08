@@ -2,7 +2,7 @@
 
 ---
 
-so you tried to peel the sticker off that cool looking wine bottle, and shit hit the fan. have no fear my friend, we're here to help. this trick works suprisingly well on even the most stubborn sticker residue.
+so you tried to peel the sticker off that cool looking wine bottle, and shit hit the fan. have no fear my friend. this trick works suprisingly well on even the most stubborn sticker residue.
 
 this works best when the paper top layer of the sticker is removed. soaking it in water and scraping it with the dull edge of a butter knife is a good place to start.
 
