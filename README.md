@@ -4,7 +4,7 @@
 
 in an effort to reduce my use of harmful chemicals, wasteful packaging, and unecessary spending, i recently began expirementing with making my own cleaning & personal products at home. 
 
-the idea for this was in large part thanks to [a wonderful book by Raleigh Briggs](http://microcosmpublishing.com/catalog/books/2333/) that i happened upon. the idea to open-source it on github came from [Dan Sinker](https://github.com/sinker)'s open-source taco repo, [tacofancy](https://github.com/sinker/tacofancy).
+the inspiration for this - as well as the base of many of the recipes - is in large part thanks to [a wonderful book by Raleigh Briggs](http://microcosmpublishing.com/catalog/books/2333/) that i happened upon. the idea to open-source it on github came from [Dan Sinker](https://github.com/sinker)'s open-source taco repo, [tacofancy](https://github.com/sinker/tacofancy).
 
 i encourage everyone to fork the project and add their own recipes. **they must be able to be made at home with relative ease, using people/pet/earth-friendly ingredients.** together we can stick it to the man & have fun doing it.
 
