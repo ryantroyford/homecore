@@ -9,7 +9,7 @@ if you're looking for a simple, no-bullshit concoction to scrub your body with w
 ```
 simple shower scrub
 
-* about 1 cup of unscented castille soap
+* about 1 cup liquid unscented castille soap
 * 5-6 tbsp olive oil
 * 6-8 drops essential oil of your choice 
 	(try mixing & matching - i use tea tree a lot, or lavender + sandalwood)
