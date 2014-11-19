@@ -24,4 +24,4 @@ vinegar rinse
 
 ```
 
-if you don't want to do the herb thing, no biggies. just omit them, mix the vinegar & water, and go nuts.
+if you don't want to do the herb thing, no biggie. just omit them, mix the vinegar & water, and go nuts.
