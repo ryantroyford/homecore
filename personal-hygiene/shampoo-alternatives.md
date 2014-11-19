@@ -21,6 +21,8 @@ and make it smell slightly nicer, so if you're doing that:
     chamomile
   tied in a tea bag/cheese cloth/old pantyhose
 
+----------------
+
 if you're doing the herb thing:
 
  - toss the bag in a large container with the vinegar. 
