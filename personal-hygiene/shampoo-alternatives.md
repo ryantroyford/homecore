@@ -2,10 +2,9 @@
 
 ---
 
-this may sound like hippy nonsense, but did you know you don't really need shampoo? nope. you just don't need it. instead of stripping all the oils off the scalp every day, only to try and replenish them with conditioner (seems a bit uneceessary, right?), try rinsing once a week with some diluted apple cider vinegar. it'll take some time to adjust, but after awhile, your hair gets used to not being fucked with every day, and begins to balance out the natural oils. 
+this may sound like hippy nonsense, but did you know you don't really need shampoo? nope. you just don't need it. instead of stripping all the oils off the scalp every day, only to try and replenish them with conditioner (seems a bit unnecessary, right?), try rinsing once a week with some diluted apple cider vinegar. it'll take some time to adjust, but after a while, your hair gets used to not being fucked with every day, and begins to balance out the natural oils. 
 
 separate from the vinegar rinse, some folks also opt to sprinkle a little baking soda on their noggin and scrub it out in the shower. 
-
 
 ```
 vinegar rinse
