@@ -12,8 +12,8 @@ vinegar rinse
 * 3/4 cup of apple cider vinegar
 * 4 cups hot water
 
-_i like to steep some herbs in mine to add a little power 
-and make it smell slightly nicer, so if you're doing that:_
+i like to steep some herbs in mine to add a little power 
+and make it smell slightly nicer, so if you're doing that:
 
 * 2 tbsp each of:
     rosemary
