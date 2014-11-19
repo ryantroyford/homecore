@@ -12,9 +12,14 @@ vinegar rinse
 * 3/4 cup of apple cider vinegar
 * 4 cups hot water
 
-_i like to steep some herbs in mine to add a little power and make it smell slightly nicer, so if you're doing that:_
+_i like to steep some herbs in mine to add a little power 
+and make it smell slightly nicer, so if you're doing that:_
 
-* 2 tbsp each of rosemary, nettles, and chamomile, tied in a tea bag/cheese cloth/old pantyhose
+* 2 tbsp each of:
+    rosemary
+    nettles
+    chamomile
+  tied in a tea bag/cheese cloth/old pantyhose
 
 if you're doing the herb thing:
 
