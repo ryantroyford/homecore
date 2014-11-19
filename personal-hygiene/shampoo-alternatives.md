@@ -19,9 +19,9 @@ vinegar rinse
 * 2 tbsp chamomile
 
  - tie herbs up in tea bag/cheese cloth/old pantyhose
- - toss the bag in a large container with the vinegar. 
- - pour the hot water over top.
- - let steep over night, then remove the herbs & use.
+ - toss the bag in a large container with the vinegar
+ - pour the hot water over top
+ - let steep over night, then remove the herbs & use
 
 ```
 
