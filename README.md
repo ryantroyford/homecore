@@ -25,7 +25,7 @@ _- Pynchon_
 
  - [health & wellness](/health-wellness)
 
- 	remedies for minor ailments & small boo-boos. these are __in no way__ intended to substitute or subvert real, science-tested medicine, but if you have a small cut, burn, headache, etc., these might save you a trip to the convenience store.
+ 	remedies for minor ailments & small boo-boos. these are __*in no way*__ intended to substitute or subvert real, science-tested medicine, but if you have a small cut, burn, headache, etc., these might save you a trip to the convenience store.
 
 
  - [diy repairs](diy-repairs)
