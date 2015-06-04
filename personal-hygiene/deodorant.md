@@ -25,4 +25,4 @@ beeswax deodorant
 
 ```
 
-let that badboy cool, and you're good to go. don't skip out on the tea tree oil or baking soda - from my experience those are definitely essential parts of the mix, unless you want to smell like Burning Man.
+let that badboy cool, and you're good to go. don't skip out on the tea tree oil or baking soda - from my experience those are definitely essential parts of the mix, unless you want to smell like a tent at Burning Man.
